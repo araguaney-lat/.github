@@ -26,4 +26,4 @@ Nos apoyamos en estándares abiertos reconocidos internacionalmente:
 ---
 **Un mismo estándar. Cualquier emergencia. Cada donación, trazable.**
 
-[www.araguaney.lat](https://www.araguaney.lat)
+[www.araguaney.org](https://www.araguaney.org)
